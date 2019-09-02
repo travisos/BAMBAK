@@ -1,2 +1,0 @@
-# BAMBAK
-Hi WORD 
